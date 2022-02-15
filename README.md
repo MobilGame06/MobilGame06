@@ -1,5 +1,5 @@
 ### Hi there 👋, my name is MobilGame06
-#### I make OpenComputer Scripts
+#### I make OpenComputer Scripts and much more
 ![I make OpenComputer Scripts](https://yt3.ggpht.com/ytc/AAUvwnijt0wmhx37agPhy6cWbgicHY0IDD4juSh1MImyBQ=s900-c-k-c0x00ffffff-no-rj)
 
 
